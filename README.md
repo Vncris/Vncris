@@ -2,7 +2,7 @@ Hello!
 
 How are you?
 
- 👩‍💻
+ Studying 👩‍💻
 
 
 
